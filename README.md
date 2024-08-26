@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋 I am Araceli Rodríguez
 
 
 **Digital Marketing | Data Marketing | Master in Data Scientist (in progess 🌱)** 
